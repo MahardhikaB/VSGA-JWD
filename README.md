@@ -1,1 +1,0 @@
-# VSGA-JWD
